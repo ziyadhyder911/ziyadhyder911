@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ziyadhyder911
 - 👀 I’m interested in computers and making friends
 - 🌱 I’m currently pursuing BTech in CSE
-- 📫 Reach me via insta : @z1yadhyder
+- 📫 Reach me via insta : @ziyadhyderr
 - 😄 Pronouns: He/Him (obviously)
 
 <!---
